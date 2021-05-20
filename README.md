@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @R-BOY741
+- 👋 Hi, my name is Lerato Kanogoiwa
 - 👀 I’m interested in software development
 - 🌱 I’m currently learning coding at life choices academy
 - 📫 How to reach me . email=Leratokanogoiwa741@gmil.com
